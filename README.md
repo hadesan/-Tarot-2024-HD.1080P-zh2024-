@@ -1,9 +1,9 @@
 《致命塔罗 Tarot》線上看、原版台版字幕，(安心觀影!!)致命塔罗 Tarot免費線上看【小鴨版】而且還是原廠正版HD畫質。
 
 致命塔罗 Tarot線上看、無毒無菌無廣告：
-<p dir="auto">🔴 在线观看 ➤➤► <a href="[https://flixsmovies.site/zh/movie/1111873](https://net.flixsmovies.site/zh/movie/719221)" rel="nofollow">致命塔罗 Tarot線上看-2024-完整版-HD</a></p>
+<p dir="auto">🔴 在线观看 ➤➤► <a href="[[https://flixsmovies.site/zh/movie/1111873](https://net.flixsmovies.site/zh/movie/719221)](https://net.flixsmovies.site/zh/movie/719221)" rel="nofollow">致命塔罗 Tarot線上看-2024-完整版-HD</a></p>
 
-<p dir="auto">🔴 完整版 ➤➤► <a href="[https://flixsmovies.site/en/movie/1111873](https://net.flixsmovies.site/en/movie/719221)" rel="nofollow">致命塔罗 Tarot線上看-2024-完整版-HD</a></p>
+<p dir="auto">🔴 完整版 ➤➤► <a href="[[https://flixsmovies.site/en/movie/1111873](https://net.flixsmovies.site/zh/movie/719221)](https://net.flixsmovies.site/en/movie/719221)" rel="nofollow">致命塔罗 Tarot線上看-2024-完整版-HD</a></p>
 
 
 台灣 No.1 高清正版線上看 | 460p - 720p - 1080p - BRRip - DvdRip - 4KUHD
